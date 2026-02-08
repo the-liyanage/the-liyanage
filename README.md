@@ -1,4 +1,4 @@
 ## Hi! I'm Hiruni! 🦕
 
-👩🏻‍💻 Electrical/Electronic Engineer currently learning ML
+👩🏻‍💻 I'm an electrical/tronic engineer currently learning ml
 
